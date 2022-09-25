@@ -1,1 +1,1 @@
-# CerrusV2
+# Tự mò mà dùng đi thằng ngu
